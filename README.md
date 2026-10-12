@@ -1,7 +1,7 @@
 <div align="center">
       . . prn.cc - https://prns.cc/tykoi . .
 
-<img width="732" height="184" alt="tumblr_92c71714c83675970df21d5cb22e4f95_1ad72582_1280" src="https://github.com/user-attachments/assets/0db1796f-125f-4673-b032-ba64ac7399f4" />
+<br> <img width="732" height="184" alt="tumblr_92c71714c83675970df21d5cb22e4f95_1ad72582_1280" src="https://github.com/user-attachments/assets/0db1796f-125f-4673-b032-ba64ac7399f4" />
 </div>
 <div align="center">
         ﹙ . . ⋯✧⋯ . . ﹚
