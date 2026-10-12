@@ -2,7 +2,6 @@
       . . prn.cc - https://prns.cc/tykoi . .
 </div>
 <img width="732" height="184" alt="tumblr_92c71714c83675970df21d5cb22e4f95_1ad72582_1280" src="https://github.com/user-attachments/assets/0db1796f-125f-4673-b032-ba64ac7399f4" />
-
 <div align="center">
         ﹙ . . ⋯✧⋯ . . ﹚
 <br> 
@@ -22,5 +21,5 @@
      <br>
      <br> our Discord is .the.b1rdhouse. please ask before adding! tumblrs are theb1rdhouse (reblog account) and grians-d0vecote (posting account that we haven't actually used yet...), follow freely.
      <br>
-<img width="400" height="209" alt="tumblr_5b2bf62d8567508564ec182e272e47e4_1385ec5a_400" src="https://github.com/user-attachments/assets/7bba79d2-65cf-41d5-8c51-e2a7ba101f83" />
+<img width="1920" height="1916" alt="tumblr_720b002a7d6bf817ddff8f3451e5ea37_c0af9b92_2048" src="https://github.com/user-attachments/assets/b4d24e66-653d-478e-95e3-f901399920f5" />
 </div>
